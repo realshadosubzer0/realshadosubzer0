@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @realshadosubzer0
+- 👀 I’m interested in minecraft
+- 🌱 I’m currently learning java
+- 💞️ I’m looking to collaborate on minecraft mods
+- 📫 How to reach me subzer0.lovesramen@gmail.com
+- ⛏ I'm interested in minecraft mods
